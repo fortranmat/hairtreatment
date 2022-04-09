@@ -10,4 +10,4 @@ Hairfall and hairloss solution
 |---|---|---|---|---|---|---|
 |2014-2019|Hyderabad|600-bore well|Yes IN JOb|Hotel/Mess/Rare Cooking|MOderate|Hairfall Huge|
 |2020-2022|Bangalore|300-bore well|NOt in JOb|OWN Cook/Rare Hotel|NIce|NO HAIR FALL|
-|2022-mar|Karwar|400-well|Yes in JOb|HOtel/Mess/STILL NO COOK|Moderate|Huge hair fall|
+|2022-mar-apr|Karwar|400-well|Yes in JOb|HOtel/Mess/STILL NO COOK|Moderate|Huge hair fall|
