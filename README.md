@@ -10,8 +10,10 @@ Sleep,    -- Space -- Deep sleep<br/>
 Excericse -- Fire  -- walking,Swimming<br/>
 
 ### Food 14-04-2022
-Protein,Vitamin,Minerals
-
+Protein,Vitamin,Minerals<br/>
+|Day|Drink|Breakfast|Drnk|Lunch|Drink|Dinner|Drink|
+|---|---|---|---|---|---|---|---|
+|14-04-2022|300ml water|Yesterdaynight soaked with salt and turmeric groundnut,chick peas, green peas, Chopped ginger, and garlic | 700ml water|4 bananas|400ml water|Morning soked groundnut,chick peas, greenpeas,chopped ginger,garlic|600ml water|
 ### Air Pollution 14-04-2022
 
 ### Water 14-04-2022
