@@ -3,18 +3,23 @@
 Hairfall and hairloss solution
 
 ## Main REasons May Cause Hair falling and Whitning
-Food,  - Earth
-Water,         
-Air,      -- Air
-Sleep,    -- Space
-Excericse -- Fire
+Food,     -- Earth -- Proteing, Vitamins, Minerals<br/>
+Water,    -- Water -- Internal , EXternal   <br/>
+Air,      -- Air   -- Breathe<br/>
+Sleep,    -- Space -- Deep sleep<br/>
+Excericse -- Fire  -- walking,Swimming<br/>
 
 ### Food 14-04-2022
 Protein,Vitamin,Minerals
 
 ### Air Pollution 14-04-2022
 
-### Water POllution 14-04-2022
+### Water 14-04-2022
+Drinking<br/>
+|Day|Duration|input|Output|color|
+|---|---|---|---|---|
+|14-04-2022|9:54-12:08|1 Litre| 300ml|Yellow|
+
 ### My Own Experieance
 😸When I am In Bangalore No Hair fall<br/>
 😺When I am in HYderabad HUge Hairfall Un Controlled Every week used to loss 300-400 strands approximate I am not counted just visual assumption<br/>
