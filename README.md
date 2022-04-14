@@ -21,7 +21,7 @@ Drinking<br/>
 |Day|Duration|input|Output|color|
 |---|---|---|---|---|
 |14-04-2022|9:54-12:08|1 Litre| 300ml|Yellow|
-|14-04-2022|12"08-16:02| 1litre| 700ml |Light Yellow|
+|14-04-2022|12:08-16:02| 1 litre| 700ml |Light Yellow|
 
 ### My Own Experieance
 😸When I am In Bangalore No Hair fall<br/>
