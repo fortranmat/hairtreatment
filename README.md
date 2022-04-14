@@ -20,8 +20,9 @@ Protein,Vitamin,Minerals<br/>
 Drinking<br/>
 |Day|Duration|input|Output|color|
 |---|---|---|---|---|
-|14-04-2022|9:54-12:08|1 Litre| 300ml|Yellow|
+|14-04-2022|9:54-12:08|1 Litre| 300ml|Dark Yellow|
 |14-04-2022|12:08-16:02| 1 litre| 700ml |Light Yellow|
+|14-04-22|16:03-22:30| 1 Litre | 600ml |Dark Yellow|
 
 ### My Own Experieance
 😸When I am In Bangalore No Hair fall<br/>
