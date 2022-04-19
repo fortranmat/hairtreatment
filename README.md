@@ -37,5 +37,5 @@ Drinking<br/>
 
 |date|status|no of hair fall approx|shampoo|bf|tea|lunch|cofee|dinner|fruits|
 |---|---|---|---|---|---|---|---|---|---|
-|19-4-22|oil applied 3 days back|300 more all black no white hair|beer shampoo|sporout|yes|rice watery dal|yes|cabbage tomotto pepper salt turmeric /4 supporta / 3 banana|
+|19-4-22|oil applied 3 days back|300 more all black no white hair|beer shampoo|sporout|yes|rice watery dal|yes|cabbage tomotto pepper salt turmeric |4 supporta / 3 banana|
 
