@@ -35,7 +35,7 @@ Drinking<br/>
 |2020-2022|Bangalore|300-bore well|NOt in JOb|OWN Cook/Rare Hotel|NIce|NO HAIR FALL|
 |2022-mar-apr|Karwar|400-well|Yes in JOb|HOtel/Mess/STILL NO COOK|Moderate|Huge hair fall|
 
-|date|status|no of hair fall approx|shampoo|
-|---|---|---|---|
-|19-4-22|oil applied 3 days back|300 more all black no white hair|beer shampoo|
+|date|status|no of hair fall approx|shampoo|bf|tea|lunch|cofee|dinner|fruits|
+|---|---|---|---|---|---|---|---|---|---|
+|19-4-22|oil applied 3 days back|300 more all black no white hair|beer shampoo|sporout|yes|rice watery dal|yes|cabbage tomotto pepper salt turmeric /4 supporta / 3 banana|
 
