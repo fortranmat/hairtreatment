@@ -50,7 +50,7 @@ Dring Curd 100ml after consuming this sprout<br/>
 Repeat again 100ml in the afternoon after food<br/>
 
 ### Dinner NO Cooking 27-4-2022
-➡️ Clean and slice/cut the following ✔️4 Small yellow banana ✔️3 Supporta ✔️150gram or 2handfull of grapes ✔️1 Riped Guva ✔️6 no Dates(seeds removed) ✔️Honey 2 teaspoon ✔️OPTIONAL Jaggery ✔️OPTIONAL curd 50ml
+➡️ Clean and slice/cut the following ✔️4 Small yellow banana ✔️3 Supporta ✔️150gram or 2handfull of grapes ✔️1 Riped Guva ✔️6 no Dates(seeds removed) ✔️Honey 2 teaspoon ✔️ONe Orange ✔️OPTIONAL Jaggery ✔️OPTIONAL curd 50ml ❗Any seasonal fruits which you can get at affordable price and remove the seed based on sweetnes add jaggery if required
 ➡️ Min it by hand and consume it<br/>
 ➡️ 😈 DOnt think is it before or after Dinner<br/>
 ➡️  😅 THis is THE DINNER
