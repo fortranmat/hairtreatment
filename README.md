@@ -40,7 +40,7 @@ Drinking<br/>
 |19-4-22|oil applied 3 days back|300 more all black no white hair|beer shampoo anti damage type|RAW sporout|yes|rice watery dal|yes|RAW cabbage tomotto pepper salt turmeric |4 supporta / 3 banana|
 
 ### Breakfast No Cooking 27-4-2022
-➡️ Soak 12 hrs following ✔️Ground nut, ✔️Moong dal green, ✔️Moong dal Black, ✔️Horse Gram, ✔️Peas Green, ✔️Peas Brwon(kali channa), ✔️Methi, :mark Seasame Black<br/>
+➡️ Soak 12 hrs following ✔️Ground nut- 10g<br/>, ✔️Moong dal green-10g<br/>, ✔️Moong dal Black-10g<br/>, ✔️Horse Gram-10g<br/>, ✔️Peas Green-10g<br/>, ✔️Peas Brwon(kali channa)-10g, ✔️Methi-5g<br/>, ✔️ Seasame Black 5g<br/>
 ➡️ Put in a cloth for 12 to 24 hrs (12 hrs is enough for small Seeds)you can counsume 12 hrs sprouted But in 24 hrs all sead will sprout<br/>
 ❗❗❗ After eating THis SOME OR MANY OF YOu will Produce GAS GAS GAS NIce Sound and Very Bad Smell (Fart/flatulence)<br/>
 Dont forget above one is super food<br/>
