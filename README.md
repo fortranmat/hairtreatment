@@ -45,12 +45,13 @@ Drinking<br/>
 ❗❗❗ After eating THis SOME OR MANY OF YOu will Produce GAS GAS GAS NIce Sound and Very Bad Smell (Fart/flatulence)<br/>
 Dont forget above one is super food<br/>
 BUT must be avoided because even in office or home peoples around will never get hurted by this<br/>
-😄My one solution<br/>
-Drink Curd 100ml after consuming this sprout<br/>
-Repeat again 100ml in the afternoon after food<br/>
+😄My solutions (Updated 1-5-2022)<br/>
+Drink Curd 100ml after consuming this sprout --- Sometime Not Worked<br/>
+Repeat again 100ml in the afternoon after food--- Some time not worked<br/>
+Eat with raw onion as salad --- 1-5-2022 Worked but only few FART GAS 3 to 4 times and less smell<br/>
 
 ### Dinner NO Cooking 27-4-2022
-➡️ Clean and slice/cut the following ✔️4 Small yellow banana ✔️3 Supporta ✔️150gram or 2handfull of grapes ✔️1 Riped Guva ✔️6 no Dates(seeds removed) ✔️Honey 2 teaspoon ✔️ONe Orange ✔️OPTIONAL Jaggery ✔️OPTIONAL curd 50ml ❗Any seasonal fruits which you can get at affordable price and remove the seed based on sweetnes add jaggery if required
+➡️ Clean and slice/cut the following<br/> ✔️4 Small yellow banana<br/> ✔️3 Supporta<br/> ✔️150gram or 2handfull of grapes<br/> ✔️1 Riped Guva<br/> ✔️6 no Dates(seeds removed)<br/> ✔️Honey 2 teaspoon<br/> ✔️ONe Orange<br/> ✔️OPTIONAL Jaggery<br/> ✔️OPTIONAL curd 50ml <br/>❗Any seasonal fruits which you can get at affordable price and remove the seed based on sweetnes add jaggery if required<br/>
 ➡️ Min it by hand and consume it<br/>
 ➡️ 😈 DOnt think is it before or after Dinner<br/>
 ➡️  😅 THis is THE DINNER
